@@ -1,0 +1,1 @@
+![Image of Slawo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fserioussales.de%2F&psig=AOvVaw1sNjvJqHscwutnRr7Ras6n&ust=1594734106656000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCOjItNGtyuoCFQAAAAAdAAAAABAE)
